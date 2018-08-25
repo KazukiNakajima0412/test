@@ -1,1 +1,3 @@
 dadadaggfhftdgdfhgufdhghbkbkf
+nakaji 
+なかじ
